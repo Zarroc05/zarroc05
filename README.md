@@ -1,5 +1,5 @@
 # 💫 About Me:
-💻 Programmierer<br>😊 Freundlich gesinnt<br>🔥 Mit viel Leidenschaft dabei<br>🎭 gerne mit anderen Unterwegs<br>🔭 Immer auf der Suche nach etwas Neuem
+💻 Programmer<br>😊 Friendly minded<br>🔥 Passionate about what you do<br>🎭 Likes to be on the road with others<br>🔭 Always looking for something new
 
 
 ## 🌐 Socials:
